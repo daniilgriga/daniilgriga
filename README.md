@@ -4,6 +4,6 @@
 
 ---
 
-[CV / Resume](CV_GrigorievDN.pdf)
+[CV / Resume](CV-GrigorievDN-en.pdf)
 
 </div>
